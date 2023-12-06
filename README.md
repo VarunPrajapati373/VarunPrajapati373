@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Performance testing, Java Developement**
 
-- 📫 How to reach me **varun_002@outlook.com**
+- 📫 How to reach me **varunprajapati030@gmail.com**
 
 - 📄 Know about my experiences [https://app.enhancv.com/share/c284c543/?utm_medium=growth&utm_campaign=share-resume&utm_source=dynamic](https://app.enhancv.com/share/c284c543/?utm_medium=growth&utm_campaign=share-resume&utm_source=dynamic)
 
